@@ -1,6 +1,7 @@
 - 👋 Hi, I’m Jayden
 - 👀 I’m interested in Game dev and Machine learning
-- 📫 How to reach me .jayden07 on discord or jaydenrienhart@gmai.com
+- 📫 How to reach me .jayden07 on discord or jaydenrienhart@gmail.com
+- looking for a animator for our project
 
 
 
